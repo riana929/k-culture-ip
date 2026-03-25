@@ -1,1 +1,0 @@
-# k-culture-ip
